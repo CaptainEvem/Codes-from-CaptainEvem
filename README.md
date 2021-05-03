@@ -1,2 +1,1 @@
-# Codes-from-CaptainEvem
-This Code Pack Owned By CaptainEvem.
+`Selamlar Ben CaptainEvem Buradaki Kodları İstediğiniz Gibi Kullanabilirsiniz Fakat Herhangi Bir Ticari Amaçla Satar veya Ben Yaptım Diyip Sayfanızda, Web Sitenizde, > Discord Sunucunuzda Paylaşırsanız Sonuçlarına Katlanırsınız.`
