@@ -1,1 +1,1 @@
-`Selamlar Ben CaptainEvem Buradaki Kodları İstediğiniz Gibi Kullanabilirsiniz Fakat Herhangi Bir Ticari Amaçla Satar veya Ben Yaptım Diyip Sayfanızda, Web Sitenizde, > Discord Sunucunuzda Paylaşırsanız Sonuçlarına Katlanırsınız.`
+`Selamlar Ben CaptainEvem Buradaki Kodları İstediğiniz Gibi Kullanabilirsiniz Fakat Herhangi Bir Ticari Amaçla Satar veya Ben Yaptım Diyip Sayfanızda, Web Sitenizde,  Discord Sunucunuzda Paylaşırsanız Sonuçlarına Katlanırsınız.`
